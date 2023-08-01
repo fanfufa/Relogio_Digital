@@ -6,5 +6,5 @@ Encontrei este projeto no canal "Larissa Kinch" e você pode conferir o vídeo a
 Créditos:
 
 Canal: Larissa Kinch <br>
-Link do Vídeo: https://www.youtube.com/watch?v=GK0ok3ZCXwM
+Link do Vídeo: https://www.youtube.com/watch?v=GK0ok3ZCXwM <br>
 Link do Canal: https://www.youtube.com/@larissakich
